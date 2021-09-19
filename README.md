@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @sunkeyempeg
+- 👀 I’m interested in ...fnf lol
+- 🌱 I’m currently learning ...coding lol
+- 💞️ I’m looking to collaborate on ...sunkey for now lol
+- 📫 How to reach me ...too busy with sunkey witch you should play when it comes out
